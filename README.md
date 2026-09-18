@@ -37,6 +37,7 @@
 ![f](<img width="640" height="359" alt="image" src="https://github.com/user-attachments/assets/c8438889-d598-411a-99ea-126cdbaf57b6" />)
 
 ![ktktkt](<img width="640" height="359" alt="image" src="https://github.com/user-attachments/assets/c8438889-d598-411a-99ea-126cdbaf57b6" />)](https://png.pngtree.com/thumb_back/fh260/background/20230610/pngtree-picture-of-a-blue-bird-on-a-black-background-image_2937385.jpg)
+![fmdcedc](https://github.com/Daiz124/git2_16.09/blob/main/1_6.jpg)
 
 
 # Цитата
